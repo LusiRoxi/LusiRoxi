@@ -1,5 +1,5 @@
--嗨，you you@LusiRoxi
--我对 Minecraft你
+-嗨@LusiRoxi
+- Minecraft
 -我目前正在学习 worldmachine
 -我想和你合作……
 -lusi_1725@163.com
